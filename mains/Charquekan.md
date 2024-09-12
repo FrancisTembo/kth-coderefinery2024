@@ -14,7 +14,7 @@
 - Oil for frying
 - Salt and pepper to taste
 - Llajwa (Bolivian spicy sauce) for serving
-## Istructions
+## Instructions
 ### 1. Prepare the Charque:
 - If the charque is not already shredded, pound it with a mallet or a rolling pin until it breaks into small strands.
 - Heat a small amount of oil in a pan and fry the charque until crispy. Set aside.
