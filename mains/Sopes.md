@@ -2,7 +2,7 @@
 
 ## For the sopes:
 2 cups masa harina (corn flour, like Maseca)
-1 1/4 cups warm water (adjust as needed) DFLASLDFKJASÖD
+1 1/4 cups warm water (adjust as needed)
 1/4 teaspoon salt
 Oil for frying (vegetable oil or any neutral oil)
 
