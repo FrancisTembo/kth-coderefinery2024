@@ -31,3 +31,5 @@
 ### 5. Assemble the Dish:
 - On a plate, place the boiled potatoes, a portion of mote, the crispy charque, and hard-boiled egg slices.
 - Garnish with the sautéed onion, parsley, and serve with a side of llajwa.
+
+Enjoy!
